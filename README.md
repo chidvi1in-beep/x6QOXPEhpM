@@ -1,2 +1,2 @@
-# x6QOXPEhpM
+# Innfinityee
 https://leetcode.com/u/x6QOXPEhpM/
